@@ -1,4 +1,4 @@
-# Hello There!
+## Hello There!
 You probably know me as Will!
 
 20 yrs old | Ecology Major | Ornithology ***Owl*** Fanatic !
@@ -7,7 +7,7 @@ If it isn't obvious, I've been hyperfixated on Hannibal ***for over a year now..
 
 ---
 
-### For relevant information about me, check out these links!
+## For relevant information about me, check out these links!
 
 These include my pronouns, BYI & DNI, interests, and more!
 
@@ -16,6 +16,8 @@ https://savourtheflxsh.straw.page/
 https://rentry.co/savourtheflxsh
 
 https://pronouns.cc/@savourtheflxsh
+
+***Also check out the information already listed beside this repository!***
 
 ---
 
