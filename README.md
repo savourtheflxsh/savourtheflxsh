@@ -1,9 +1,9 @@
 ## **Hello There!**
 You probably know me as Will!
 
-20 yrs old | Ecology Major | Ornithology ***Owl*** Fanatic !
+20 yrs old | Ecology Major | Ornithology & ***Owl*** Fanatic and Enthusiast !
 
-If it isn't obvious, I've been hyperfixated on Hannibal !
+If it isn't already obvious, I've been hyperfixated on Hannibal !
 
 ---
 
