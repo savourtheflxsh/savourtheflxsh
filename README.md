@@ -17,6 +17,8 @@ https://rentry.co/savourtheflxsh
 
 https://pronouns.cc/@savourtheflxsh
 
+https://listography.com/savourtheflxsh
+
 ***Also check out the information already listed beside this repository!***
 
 ---
