@@ -1,7 +1,7 @@
 ## **Hello There!**
 You probably know me as Will!
 
-21 yrs old | BS Ecology Major | Ornithology & ***Owl*** Fanatic and Enthusiast !
+22 yrs old | BS Ecology Major | Ornithology & ***Owl*** Fanatic and Enthusiast !
 
 ---
 
